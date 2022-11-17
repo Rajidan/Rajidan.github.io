@@ -1,1 +1,0 @@
-# Rajidan.github.io
